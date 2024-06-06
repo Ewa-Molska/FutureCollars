@@ -1,1 +1,1 @@
-zadanie domowe zrobione
+zadanie domowe zrobione prawidlowo
