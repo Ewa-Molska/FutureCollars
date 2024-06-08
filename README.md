@@ -1,2 +1,3 @@
 Zadanie domowe
-czy porrawne?
+czy poprawne?
+Zmiana zadania domowego
