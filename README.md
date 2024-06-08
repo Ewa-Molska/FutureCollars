@@ -1,2 +1,0 @@
-zadanie domowe
-zmiana
